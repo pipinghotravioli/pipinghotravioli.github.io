@@ -1,2 +1,0 @@
-# communique
-The College Communique
